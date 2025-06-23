@@ -1,6 +1,6 @@
 # 👋 About me 
 
-⚡ **C U R R E N T L Y :** Open to internship/alternation opportunities, [contact me](mailto:imane.iguederzen76@gmail.com) !
+⚡ **C U R R E N T L Y :** Open to alternation opportunities, [contact me](mailto:imane.iguederzen76@gmail.com) !
 
 
 👩🏽‍💻 Web Development student at [Hetic](https://www.hetic.net) <br>
